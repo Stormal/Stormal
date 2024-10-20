@@ -6,4 +6,6 @@
 - 😄 Pronouns: Betoneira\elétrica
 - ⚡ Fun fact: i like handball >:) 
 
+-Me playing 🤫
+
 https://www.youtube.com/watch?v=B96shr-GIvI&t=19s
