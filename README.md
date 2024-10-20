@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Stormal
 - 👀 I’m interested in Blox fruits 
-- 🌱 I’m currently learning portal combos
+- 🌱 I’m currently learning infinity exility combos 
 - 💞️ I’m looking to collaborate on my crew
 - 📫 How to reach me: in my house, gym or in school
 - 😄 Pronouns: Betoneira\elétrica
